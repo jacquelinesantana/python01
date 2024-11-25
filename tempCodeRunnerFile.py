@@ -1,0 +1,1 @@
+, tenham um "lindo dia" ')
